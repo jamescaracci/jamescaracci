@@ -6,6 +6,13 @@
 Here are some ideas to get you started:https://foap.com/users/james.caracci
 
 - 🔭 I’m currently working on ...https://artists.landr.com/692531036346
+https://mobile.twitter.com/CaracciJames
+https://m.facebook.com/james.caracci.39
+https://myspace.com/jamescaracci_123
+https://www.instagram.com/jamescaracci/
+https://jamescaracci.itch.io/
+https://github.com/jamescaracci
+https://artists.landr.com/692531036346
 https://foap.com/users/james.caracci
 https://www.loudly.com/profiles/jamescaracci
 http://stream.zeno.fm/z76q1c6sp18uv
